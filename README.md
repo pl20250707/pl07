@@ -13,6 +13,6 @@
 平台无广告，没有弹窗和强制会员推送，让你专心享受影片。所有数据加密，保障隐私，完全匿名观看。
 简单、安全、高清、无广告的观影体验，选择我们，轻松享受最优质的日本AV影片。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/pl20250707/pl07 ）</span>
 
 
